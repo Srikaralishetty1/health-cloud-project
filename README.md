@@ -1,1 +1,0 @@
-# health-cloud-project
